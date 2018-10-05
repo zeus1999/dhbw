@@ -1,0 +1,4 @@
+# Betriebswirtschaftslehre
+Allgemeine Infos
+
+TODO
